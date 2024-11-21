@@ -65,7 +65,6 @@ Se implementado com cuidado, por meio de educação, movimentos sociais e plataf
 
 ---
 
-### *“Dedicado a todos os espíritos que honram a verdade e se esmeram no cultivo do Amor e do valor de caráter.”* 
-- Leonardo
+### *“Dedicado a todos os espíritos que honram a verdade e se esmeram no cultivo do Amor e do valor de caráter.”* ### - Leonardo
 
 ### 🙏🌹
