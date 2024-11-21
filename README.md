@@ -1,9 +1,8 @@
 # "Fluxograma Verificador de Estupidez Coletiva" V_0.1
 
-👉 Clique aqui ou na Imagem abaixo para acessar o Arquivo (PDF)
-
 ![IMAGEM - Fluxograma Verificador de Estupidez 150dpi.png](https://github.com/leoawen/fluxograma-verificador-de-estupidez-coletiva-v_0.1/blob/main/IMAGEM%20-%20Fluxograma%20Verificador%20de%20Estupidez%20150dpi.png)
 
+👉 [Clique aqui acessar a IMAGEM no Arquivo (PDF)](https://drive.google.com/file/d/17NTR32sMqc2cCbmjRY69LKVmMLiDbybw/view?usp=drive_link)
 (Se precisar, clique na lupa 🔎 para dar Zoom)
 
 O "Fluxograma Verificador de Estupidez Coletiva V_0.1", apresenta um fluxo de ideias filosóficas interligadas que questionam conceitos centrais sobre o poder, o dinheiro, a hierarquia e a convivência humana.
