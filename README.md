@@ -2,7 +2,7 @@
 
 👉 Clique aqui ou na Imagem abaixo para acessar o Arquivo (PDF)
 
-![[Imagem - Fluxograma Verificador de Estupidez - 150dpi .png]]
+
 
 (Se precisar, clique na lupa 🔎 para dar Zoom)
 
