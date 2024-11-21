@@ -2,7 +2,7 @@
 
 👉 Clique aqui ou na Imagem abaixo para acessar o Arquivo (PDF)
 
-
+![IMAGEM - Fluxograma Verificador de Estupidez 150dpi.png](https://github.com/leoawen/fluxograma-verificador-de-estupidez-coletiva-v_0.1/blob/main/IMAGEM%20-%20Fluxograma%20Verificador%20de%20Estupidez%20150dpi.png)
 
 (Se precisar, clique na lupa 🔎 para dar Zoom)
 
