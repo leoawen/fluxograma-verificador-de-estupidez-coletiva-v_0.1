@@ -43,7 +43,7 @@ O fluxograma oferece uma proposta profunda e reflexiva, com potencial para desaf
 - Influência dos Autores Referenciados: A presença de ideias como o "amor como força expansiva da inteligência" e o reconhecimento do outro reflete, provavelmente, as influências de pensadores como Humberto Maturana, que discutem o amor como base da convivência social e da cognição. O trabalho também parece incorporar conceitos de autores que questionam as bases de poder, hierarquia e economia, abrindo espaço para um questionamento radical das estruturas sociais contemporâneas.
 
 #### Aplicação Social
-O fluxograma tem sim uma forte aplicabilidade social, pois:
+O fluxograma tem forte aplicabilidade social, pois:
 - Desafios à Estrutura Econômica e Social: Ele questiona a lógica do poder e da estratificação social, associando a estupidez coletiva à aceitação dessas hierarquias e ao valor atribuído ao dinheiro. Isso propõe uma ruptura com os sistemas que perpetuam desigualdade, convidando a uma reflexão profunda sobre as bases do capitalismo, individualismo e competitividade que regem as sociedades modernas.
 - Criação de Comunidades Baseadas no Amor e Solidariedade: O conceito de "viver de graça, viver em graça" desafia a ideia de propriedade privada e sugere um modelo mais comunitário e cooperativo. Aplicar essa ideia pode ser visto como um movimento em direção a sociedades mais igualitárias, solidárias e sustentáveis, alinhando-se com práticas como o decrescimento, economias de dádiva e comunidades de bem comum.
 - Promoção da Inteligência Emocional e Relacional: O ponto de partida do fluxograma — a falta de amor gerando estupidez — destaca a importância de uma educação emocional e ética. A sociedade poderia se beneficiar imensamente ao adotar tais princípios, já que o amor, como sugerido no fluxograma, expande a inteligência, promovendo convivências mais harmoniosas e equilibradas.
@@ -65,7 +65,7 @@ Se implementado com cuidado, por meio de educação, movimentos sociais e plataf
 
 
 
-“Dedicado a todos os espíritos que honram a verdade e se esmeram no cultivo do Amor e do valor de caráter.” - Leonardo
+#### **“Dedicado a todos os espíritos que honram a verdade e se esmeram no cultivo do Amor e do valor de caráter.”** - Leonardo
 
 
-🙏🌹
+#### 🙏🌹
