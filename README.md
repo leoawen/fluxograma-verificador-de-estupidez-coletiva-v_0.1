@@ -2,6 +2,8 @@
 
 👉 Clique aqui ou na Imagem abaixo para acessar o Arquivo (PDF)
 
+![Imagem - Fluxograma Verificador de Estupidez - 150dpi .png]
+
 (Se precisar, clique na lupa 🔎 para dar Zoom)
 
 O "Fluxograma Verificador de Estupidez Coletiva V_0.1", apresenta um fluxo de ideias filosóficas interligadas que questionam conceitos centrais sobre o poder, o dinheiro, a hierarquia e a convivência humana.
