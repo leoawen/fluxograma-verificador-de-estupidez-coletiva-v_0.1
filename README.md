@@ -63,10 +63,9 @@ No entanto, a aplicação ampla do fluxograma enfrenta alguns desafios:
 O potencial social do fluxograma é significativo, especialmente como ferramenta crítica de reflexão e como guia para a construção de uma sociedade mais justa e inteligente. Ele propõe uma mudança profunda de paradigma, que poderia beneficiar a sociedade em várias dimensões: promoção da inteligência emocional, redução de desigualdades e uma convivência mais amorosa e respeitosa. No entanto, para que seja efetivamente aplicado em larga escala, exigiria uma mudança cultural e institucional considerável, além de esforços contínuos para educar e conscientizar as pessoas sobre esses temas.
 Se implementado com cuidado, por meio de educação, movimentos sociais e plataformas de conscientização, o estudo desse fluxograma poderia levar a transformações sociais significativas e duradouras.
 
+---
 
+### *“Dedicado a todos os espíritos que honram a verdade e se esmeram no cultivo do Amor e do valor de caráter.”* 
+- Leonardo
 
-
-#### **“Dedicado a todos os espíritos que honram a verdade e se esmeram no cultivo do Amor e do valor de caráter.”** - Leonardo
-
-
-#### 🙏🌹
+### 🙏🌹
